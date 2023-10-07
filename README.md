@@ -1,1 +1,1 @@
-# Github1Kayky
+Checkpoint 2 – Kayky Rocha Amaral
